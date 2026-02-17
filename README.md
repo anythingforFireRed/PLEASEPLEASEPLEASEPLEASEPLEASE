@@ -1,3 +1,3 @@
-# PLEASEPLEASEPLEASEPLEASEPLEASE
-WORKWORKWORKWORKWORK
-i need this rebuild to fix my damn page
+# my personal firered save
+old hard save from ~30 hours since my latest savestate
+
